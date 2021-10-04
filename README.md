@@ -6,8 +6,20 @@
 #### Ingredienten:
 1. pasta
 2. basilicum plant
-3. olijf olie
-4. pijnboompitten
-5. kookroom
-6. zout en peper
-7. Grada pedano kaas
+3. kip
+4. olijf olie
+5. pijnboompitten
+6. kookroom
+7. zout en peper
+8. Grada pedano kaas
+##### Bereiding
+1. bak de pijnboompitten
+2. knip de plant 
+3. doe de pitten erbij met zout en peper en olijf olie
+4. doe er nog kookroom bij
+5. mix het
+6. kook water en daarna de pasta
+7. bak de kip
+8. voeg daarna de saus toe
+9. mix de pasta en de saus met kaas erover 
+10. en genieten maar
